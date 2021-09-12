@@ -5,7 +5,7 @@ Demonic_Criminal, the owner & leader for SFRR clans a.k.a. Seven Faster Rope Ran
 Royal ACME allies and SFRR clans strengthening together rightfully justice on limited selected for top league participant.
 Seven Faster Rope Rangers Official Sites via: https://wlo.link/@acme - @SFRR Member
 
-Standalone SFRR App for quick, hassle free access to SFRR clan features and info w/ ease.
+•Standalone SFRR App for quick, hassle free access to SFRR clan features and info w/ ease.
 
 •SFRR clans and ACME allies rules:
 
